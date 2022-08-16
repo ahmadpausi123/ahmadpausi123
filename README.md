@@ -1,2 +1,2 @@
 ### Hi kembali lagi sama ahmadpausi👋
-![foto naruto](/xxx.png)
+![foto naruto](/xxx.jpg)
